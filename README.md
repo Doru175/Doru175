@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Doru175
+- - - - - - - - - - - - -
+- 👀 I’m interested in Music, Games, Hardware and Technology
+- 🌱 I’m currently learning about Mechanical Engineering 
+- 💞️ I’m looking to collaborate on good projects
+- 📫 How to reach me? I don't even know...
